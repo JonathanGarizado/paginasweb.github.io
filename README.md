@@ -1,2 +1,0 @@
-# paginasweb.github.io
-#Bienvenidos
